@@ -1,2 +1,0 @@
-# Sukhorukova143
-psets
